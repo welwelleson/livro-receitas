@@ -6,6 +6,7 @@
 - 1 colher (sopa) de fermento em pó
 - óleo para fritar
 - açúcar e canela em pó para polvilhar
+- deixe descança algum tempo
 
 ### Modo de preparo
 
